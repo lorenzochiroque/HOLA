@@ -10,4 +10,5 @@ Estudiante de economía que está interesando en ver cómo funciona el mundo. Di
 - 😄 Pronombres: He/Him
 - ⚡  Dato curioso: me gusta cocinar, amante de la comida peruana 
 
---> Cualquier aporte
+--> Cualquier aporte me lo envían a lorenzo.chiroque@pucp.edu.pe 
+GRACIAS!!!!!
